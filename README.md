@@ -9,7 +9,9 @@
 ### High-Converting Shopify Dropshipping Store
 
 ✅ Officially Published on Upwork Project Catalog  
-🔗 View Live Project: https://www.upwork.com/services/product/development-it-dynamic-online-store-in-shopify-1580582452205924352?ref=project_share
+🔗 View Live Project:
+[[Click Here to View on Upwork](https://your-upwork-link](https://www.upwork.com/services/product/development-it-dynamic-online-store-in-shopify-1580582452205924352?ref=project_share)
+🔗 View Live Project: 
 
 ---
 
