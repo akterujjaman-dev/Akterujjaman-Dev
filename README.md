@@ -27,11 +27,3 @@
 
 Available for freelance work and long-term collaboration.
 
----
-
-## 🎬 Project Demo Videos
-
-- 🎥 [Gold & White Elegant Jewelry Store](./Gold%20and%20White%20Elegant%20Jewelry%20Store%20Vi....mp4)
-- 🎥 [Yellow Grey Modern Store](./Yellow%20Grey%20Modern%20Photocentric%20Electro....mp4)
-- 🎥 [Black & Yellow Bold Dropshipping](./Black%20and%20Yellow%20Bold%20General%20Dropship....mp4)
-- 🎥 [Black White Simple Landing Page](./Black%20White%20Simple%20Blocks%20Landing%20Page....mp4)
