@@ -1,4 +1,5 @@
 # 👋 Hi, I'm Akterujjaman
+💻 Shopify Developer | E-commerce Specialist | Conversion Focused
 
 🚀 **Upwork Approved Shopify Developer**
 
